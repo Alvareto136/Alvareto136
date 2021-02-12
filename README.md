@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alvareto136
+- 👀 I’m interested in Psychology, Education and Minecraft.
+- 🌱 I’m currently studying psychology.
+- 💞️ I’m looking to collaborate on translations.
+- 📫 You can send me a DM on Discord at Don Alvareto#4489
